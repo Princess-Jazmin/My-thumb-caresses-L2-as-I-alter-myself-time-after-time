@@ -8,7 +8,7 @@ Loading...<br>
 An Avatar, slightly bouncing appears on the screen<br>
 Who's Avatar?<br>
 A presumption is made<br>
-A male presenting figure stares back at me,bouncing<br>
+A male presenting figure stares back at me, bouncing<br>
 The instant drive to recreate myself swarms me<br>
 Tab after tab of alterations and editing options surround him<br>
 My thumbs dance around the controller, considering and selecting<br>
