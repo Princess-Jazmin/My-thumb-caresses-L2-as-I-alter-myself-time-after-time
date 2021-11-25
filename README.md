@@ -18,7 +18,7 @@ A female presenting protagonist is born<br>
 I stare back at the third version of myself<br>
 There is a strong dissociation between me and my virtual represent<br>
 I am defined by a character assumed by someone other to me<br>
-Currently a slim, brown haired white, female presenting avatar<br>
+Currently a slim, brown haired, white, female presenting avatar<br>
 I admire her appearance whilst I take the journey through the interface of modifications<br>
 From blush to olive, through to caramel... sweet dark honey to sweet dark chocolate<br>
 The bitter struggle of resisting the categories begins<br>
