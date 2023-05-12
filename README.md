@@ -5,23 +5,23 @@ New game <br>
 Loading…<br>
 Ambient music and text-based narrative set the tone<br>
 Loading...<br>
-An Avatar, slightly bouncing appears on the screen<br>
+An Avatar, slightly bouncing, appears on the screen<br>
 Who's Avatar?<br>
 A presumption is made<br>
-A male presenting figure stares back at me, bouncing<br>
+A masc presenting figure stares back at me, bouncing<br>
 The instant drive to recreate my body swarms me<br>
 Tab after tab of alterations and editing options surround him<br>
 My thumbs dance around the controller, considering and selecting<br>
 I begin the godly process<br>
 The Adam and Eve like shift from 'male' to 'female' is simulated<br>
-A female presenting protagonist is born<br>
-I stare back at the third version of myself<br>
+And a fem presenting protagonist is born<br>
+I stare at the third version of myself<br>
 There is a strong dissociation between me and my virtual represent<br>
 I am defined by a character assumed by someone other to me<br>
-Currently a slim, brown haired, white, female presenting avatar<br>
+Currently a slim, brown haired, white woman<br>
 I admire her appearance whilst I take the journey through the interface of modifications<br>
-From blush to olive, through to caramel... sweet dark honey to sweet dark chocolate<br>
-The bitter struggle of resisting the categories begins<br>
+From blush to olive, through to caramel... sweet dark honey to velvety dark chocolate<br>
+The bitter struggle of resisting the categorisation begins<br>
 Becoming embodied in countless renditions until I find *my* sweet spot<br>
 Virtually simulating my flesh; my melanin becomes a series of binary numbers<br>
 A grouping of tiny brown pixels<br>
@@ -57,6 +57,6 @@ Nose scale<br>
 Bridge width<br>
 Bridge length<br>
 Nostril spacing<br>
-A series of scroll bars and selections slowly allow me to regenerate<br>
+A series of scroll bars and options slowly allow me to regenerate<br>
 Like a flower from a bud, I blossom<br>
-Princess_Jazmin is born<br>
+And Princess_Jazmin is born<br>
